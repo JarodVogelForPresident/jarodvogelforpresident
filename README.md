@@ -1,1 +1,1 @@
-# JarodVogelForPres.github.io
+# jarodvogelforpres.github.io
